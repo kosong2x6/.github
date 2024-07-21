@@ -4,7 +4,7 @@
 
 A Casa do Dragão - 2ª Temporada, Episódio 6: Estreno Confirmado HD 2024
 
-🚨🚨🚨 ASSISTIR AGORA 🚨🚨🚨 (Clique aqui para assistir)(https://t.co/KPUoj6xJ1i)
+🚨🚨🚨 ASSISTIR AGORA 🚨🚨🚨 [Clique aqui para assistir](https://t.co/KPUoj6xJ1i)
 
 Max confirmou a hora exata do lançamento do episódio 6 da 2ª temporada de "House of the Dragon". Veja abaixo as informações completas sobre quando e onde assistir.
 
